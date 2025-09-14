@@ -1,0 +1,1 @@
+# TakanashiRikka520.github.io
